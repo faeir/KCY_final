@@ -1,6 +1,4 @@
-![1](https://github.com/faeir/KCY_final/assets/100394667/0c0dcddb-b6bc-4eda-be66-ff79c1f005b6)
 ![2](https://github.com/faeir/KCY_final/assets/100394667/d3a89e81-787e-4116-8f08-f29e8cb5172d)
-![3](https://github.com/faeir/KCY_final/assets/100394667/fbb78389-2ee7-4204-9e19-c5cf2c417cd1)
 ![4](https://github.com/faeir/KCY_final/assets/100394667/d5c38280-9ea6-4bab-ad3c-28b217f4914d)
 ![5](https://github.com/faeir/KCY_final/assets/100394667/cd8c830e-6652-436f-9c74-c6453754bfcd)
 ![6](https://github.com/faeir/KCY_final/assets/100394667/2f90b5e5-3c51-4825-a9c9-b0ef3b23c184)
